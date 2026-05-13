@@ -1,4 +1,4 @@
-# 
+# Get the ultimate OBS Studio for PC | OBS Studio for Windows panel with rare OBS Studio for PC | OBS Studio for Windows Panel | plugin-support + bitrate-control. Featuring
 
 
 
